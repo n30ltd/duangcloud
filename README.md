@@ -4,8 +4,6 @@
 
 最新墙内地址：[dcsite.xyz](https://dcsite.xyz)
 
-> 疑似跑路，关注中
-
 ## duangcloud简介
 
 DuangCloud，也被称为Duang机场，是一家专业的老牌优质SS机场，也是一家能看Netflix的机场，全部升级到企业级华为BGP专线，类似于IPLC/IEPL国际专线，极速稳定。使用最快的Shadowsocks/SS协议。
