@@ -2,7 +2,7 @@
 
 永久地址：[DCviva.com](https://DCviva.com) （已被墙，开全局模式访问）
 
-最新墙内地址：[dcsite2.xyz](https://dcsite2.xyz)
+最新墙内地址：[dcsite3.xyz](https://dcsite3.xyz)
 
 ## duangcloud简介
 
