@@ -1,6 +1,6 @@
 # DuangCloud官网最新地址
 
-永久地址：[DCviva.com](https://DCviva.com) （已被墙，开全局模式访问）
+永久地址：[LMout.com](https://lmout.com) （已被墙，开全局模式访问）
 
 ## DuangCloud简介
 
